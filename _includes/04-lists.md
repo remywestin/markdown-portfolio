@@ -1,0 +1,2 @@
+- Reading & learning :book:
+- Using emojis :+1:
